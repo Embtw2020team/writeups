@@ -4,3 +4,7 @@ the woods are lovely, dark and deep
 but I have promises to keep
 and miles to go before I sleep
            -Robert Frost
+           
+           
+ People deal too much with the negative, with what is wrong. Why not try and see positive things, to just touch those things and make them bloom?
+-Thich Nhat Hanh
