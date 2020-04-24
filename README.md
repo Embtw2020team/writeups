@@ -8,3 +8,8 @@ and miles to go before I sleep
            
  People deal too much with the negative, with what is wrong. Why not try and see positive things, to just touch those things and make them bloom?
 -Thich Nhat Hanh
+
+
+"ഊതിയാൽ  അണയില്ല  ഉലയിലെ  തീ 
+ഉള്ളാകെ  ആളുന്നു  ഉയിരിലെ  തീ "
+                                    - ഇളയ രാജ
