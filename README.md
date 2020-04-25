@@ -13,3 +13,7 @@ and miles to go before I sleep
 "ഊതിയാൽ  അണയില്ല  ഉലയിലെ  തീ 
 ഉള്ളാകെ  ആളുന്നു  ഉയിരിലെ  തീ "
                                    - ഇളയ രാജ
+
+Lovers never surrender to each other.
+Lovers simply surrender to love.
+                                 - Osho
