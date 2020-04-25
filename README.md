@@ -16,4 +16,4 @@ and miles to go before I sleep
 
 Lovers never surrender to each other.
 Lovers simply surrender to love.
-                                 - Osho
+                                   - Osho
