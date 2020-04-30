@@ -17,3 +17,5 @@ and miles to go before I sleep
 Lovers never surrender to each other.
 Lovers simply surrender to love.
                                    - Osho
+
+"നിന്നിലേക്കുള്ളതായിരുന്നു....ഇന്നോളം എനിക്ക് തെറ്റിയ വഴികളെല്ലാം..."
