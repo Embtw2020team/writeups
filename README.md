@@ -19,3 +19,6 @@ Lovers simply surrender to love.
                                    - Osho
 
 "നിന്നിലേക്കുള്ളതായിരുന്നു....ഇന്നോളം എനിക്ക് തെറ്റിയ വഴികളെല്ലാം..."
+
+Love one another, but make not a bond of love: Let it rather be a moving sea between the shores of your souls.
+
