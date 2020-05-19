@@ -23,4 +23,7 @@ Lovers simply surrender to love.
 
 Love one another, but make not a bond of love: Let it rather be a moving sea between the shores of your souls.
                                                                                               -Kahlil Gibran
+                                                                                              
+ഒരൊറ്റ അക്ഷരത്തിൽ ഞാൻ എന്റെ പ്രണയത്തെ രേഖപ്പെടുത്തിയിരിക്കുന്നു .....
+അതാണ് നീ 
 
