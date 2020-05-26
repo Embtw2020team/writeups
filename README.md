@@ -12,7 +12,7 @@ and miles to go before I sleep
 
 "ഊതിയാൽ  അണയില്ല  ഉലയിലെ  തീ 
 ഉള്ളാകെ  ആളുന്നു  ഉയിരിലെ  തീ "
-                                   - ഇളയ രാജ
+                                    - ഇളയ രാജ
 
 Lovers never surrender to each other.
 Lovers simply surrender to love.
@@ -29,4 +29,4 @@ Love one another, but make not a bond of love: Let it rather be a moving sea bet
                                                                             -ഞാൻ
 
 
-ജയിക്കാതെ തോറ്റുപോയവരുണ്ട് നമുക്ക് ചുറ്റും
+ജയിക്കാതെ തോറ്റുപോയവരുണ്ട് നമുക്ക് ചുറ്റും.
