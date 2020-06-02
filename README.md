@@ -33,3 +33,4 @@ Love one another, but make not a bond of love: Let it rather be a moving sea bet
 
 
 Recognize your blindspot.
+Redefine happiness
