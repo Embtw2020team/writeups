@@ -27,6 +27,9 @@ Love one another, but make not a bond of love: Let it rather be a moving sea bet
 ഒരൊറ്റ അക്ഷരത്തിൽ ഞാൻ എന്റെ പ്രണയത്തെ രേഖപ്പെടുത്തിയിരിക്കുന്നു .....
 അതാണ് നീ 
                                                                             -ഞാൻ
+ 
+ I can define my love in just one word. That's you!
+                                            - me
 
 
 ജയിക്കാതെ തോറ്റുപോയവരുണ്ട് നമുക്ക് ചുറ്റും.
