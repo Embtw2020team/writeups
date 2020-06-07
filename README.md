@@ -29,7 +29,7 @@ Love one another, but make not a bond of love: Let it rather be a moving sea bet
                                                                             -ഞാൻ
  
  I can define my love in just one word. That's you!
-                                            - me
+                                                 - me
 
 
 ജയിക്കാതെ തോറ്റുപോയവരുണ്ട് നമുക്ക് ചുറ്റും.
