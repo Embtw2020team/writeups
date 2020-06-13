@@ -40,3 +40,11 @@ Redefine happiness.
 Refresh n go!
 
 Let differences define you.
+
+Namalu kallam parayan padikanam...
+Epolaneno namku ettavum istamulla satanam kothiyode matti vekkumbol namade koodapirapu vannu chodikumbol namaku venda ennu kallam parayanam..
+Orupadu shenikunnavar othiri vedanipichittu pinne vannu vishamam ayonnu chodicha illa ennu kallam parayanam..
+Athupole orupadu sangadapettirikumbol ethire varunna oralu sugamalle? Ennu chodicha athe ennu kallam paranjekanam
+Pinne orupadu thirakulla samayathu namaku ettavum vendapettavar vilichu thirakilano ennu chodikumbol alla ennu kalllam parayanam
+Ithellam kazhiyumbol aa divasam oru satyam parayan marakallu.. ente vishamangale njn adhijeevichu ennu..
+At the end of the day sun goes down to give us a shining moon to light our darkness.
