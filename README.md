@@ -48,3 +48,7 @@ Athupole orupadu sangadapettirikumbol ethire varunna oralu sugamalle? Ennu chodi
 Pinne orupadu thirakulla samayathu namaku ettavum vendapettavar vilichu thirakilano ennu chodikumbol alla ennu kalllam parayanam
 Ithellam kazhiyumbol aa divasam oru satyam parayan marakallu.. ente vishamangale njn adhijeevichu ennu..
 At the end of the day sun goes down to give us a shining moon to light our darkness.
+
+
+
+I would rather attend your call than attend your funeral!  #youarenotalone (sushanth)
