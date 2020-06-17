@@ -50,6 +50,5 @@ Ithellam kazhiyumbol aa divasam oru satyam parayan marakallu.. ente vishamangale
 At the end of the day sun goes down to give us a shining moon to light our darkness.
 
 
-
 I would rather attend your call than attend your funeral!  #youarenotalone 
 
